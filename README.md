@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **dinoshisewwandi7@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/dinoshi-sewwandi-594032268](www.linkedin.com/in/dinoshi-sewwandi)
+- 📄 Know about my experiences [www.linkedin.com/in/dinoshi-sewwandi-594032268](www.linkedin.com/in/dinoshi-sewwandi-594032268)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
